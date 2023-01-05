@@ -1,0 +1,2 @@
+# samod-
+Teacher
